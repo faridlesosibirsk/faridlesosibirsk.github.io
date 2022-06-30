@@ -1,1 +1,0 @@
-# faridlesosibirsk.github.io
